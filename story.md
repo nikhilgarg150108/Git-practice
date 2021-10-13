@@ -1,0 +1,1 @@
+Harry Potter was an 11 year old boy. He was an orphan. His parents had been murdered when he was 1 year old but he survived. He lived with his cruel uncle and aunt. He was a famous wizard but he didn't know it.
